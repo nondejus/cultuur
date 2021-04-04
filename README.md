@@ -1,1 +1,0 @@
-# een-achterlijke-psychiaters-cultuur
